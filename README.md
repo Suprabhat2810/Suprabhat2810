@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning how to be efficient.
 - 💞️ I’m looking to collaborate and work within groups to bring out something effective
 - 📫 You can reach me at
-    suprabhatchowhan96@gmail.com
-    www.linkedin.com/in/suprabhatchowhan
+    -suprabhatchowhan96@gmail.com,
+    -www.linkedin.com/in/suprabhatchowhan
 
 
 <!---
